@@ -1,0 +1,3 @@
+#nosilverv 
+communications that alter [[common belief]] by being uttered. 
+e.g. “you are now married”, “i crown you king”, … 

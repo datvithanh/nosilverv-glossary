@@ -1,0 +1,4 @@
+#nosilverv 
+the experience of emptiness is that of having what was just a moment before taken to be territory seen to have been map all around. what was thought to have parts is seen to just have been a label. going from [[map to territory]].
+when master guishan was under baizhang, he had the position of tenzo [cook]. baizhang wanted to choose a master for great gui mountain in the province of konan. he called the head monk and the rest of his disciples together to have them present their views and said that the outstanding person should be sent. 
+then he took a water jug, put it on the floor, and said, “you may not call this a water jug. what will you call it?” the head monk said, “it cannot be called a wooden sandal.” baizhang then asked guishan. guishan immediately kicked over the water jug and left. baizhang laughed and said, “first monk, you have been defeated by guishan.” so he ordered guishan to found the new monastery.

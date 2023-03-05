@@ -1,0 +1,3 @@
+#nosilverv 
+things that are true insofar as they are [[common belief]].
+e.g.: charles is the king of england because everyone believes everyone believes everyone believes [sic.] charles is the king of england; fiat money has value because everyone believes everyone believes etc.; …  

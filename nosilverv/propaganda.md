@@ -1,0 +1,3 @@
+#nosilverv 
+[[bullshit]] that intends at altering [[common belief]]. 
+e.g.: “9/10 dentists recommend”, “everyone knows that”, “because it’s [current year]”, “times have changed”, …

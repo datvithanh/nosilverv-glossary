@@ -7,3 +7,5 @@ steps
 
 notes
 - lowercase everything for obsidian link
+
+![](data/graphview.png)
